@@ -3,7 +3,7 @@
 - please reach me at sallen21@uccs.edu !
 - he/him 
 - ♡〜٩( ╹▿╹ )۶〜♡
-- (´ﾉ･ω･｀)ﾉ・‥…━━━★ﾟ+.・‥…━━━★ﾟ+.・‥…━━━★ﾟ+
+- ｡+ﾟ.。+。(´ω｀*)♪♪
 
 <!---
 valeriabounze1688/valeriabounze1688 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
