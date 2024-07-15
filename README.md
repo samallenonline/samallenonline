@@ -2,7 +2,6 @@
 - i am currently learning python and data science
 - please reach me at sallen21@uccs.edu !
 - he/him 
-- ♡〜٩( ╹▿╹ )۶〜♡
 - ｡+ﾟ.。+。(´ω｀*)♪♪
 
 <!---
