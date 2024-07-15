@@ -1,6 +1,6 @@
-- ｡+ﾟ.。+。(´ω｀*)♪♪ hello, i am @valeriabounze1688 !
-- i am currently learning python and data science ☆⌒(ゝ。∂)
-- ♡‧₊˚ please reach me at sallen21@uccs.edu ˚₊‧♡
+- hello, i am @valeriabounze1688 !
+- i am currently learning python and data science
+- please reach me at sallen21@uccs.edu
 - he/him 
 - ♡〜٩( ╹▿╹ )۶〜♡
 
