@@ -1,5 +1,5 @@
-- hello, i am @valeriabounze1688 !
-- i am currently learning python and data science
+- hello, i am @samallenonline !
+- i am currently learning C and software engineering
 - please reach me at sallen21@uccs.edu !
 - he/him 
 - ｡+ﾟ.。+。(´ω｀*)♪♪
