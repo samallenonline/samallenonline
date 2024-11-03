@@ -1,5 +1,5 @@
 - hello, i am @samallenonline !
-- i am currently learning C, Python, and software development
+- i am currently learning C, Python, and software engineering
 - please reach me at sallen21@uccs.edu !
 - he/him 
 - ｡+ﾟ.。+。(´ω｀*)♪♪
