@@ -1,5 +1,5 @@
 - hello, i am @samallenonline !
-- i am currently learning C, Python, and software engineering
+- i am currently learning software engineering, computer organization, and assembly language 
 - please reach me at sallen21@uccs.edu !
 - he/him 
 - ｡+ﾟ.。+。(´ω｀*)♪♪
