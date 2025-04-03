@@ -1,5 +1,5 @@
 - hello, i am @samallenonline !
-- i am currently learning software engineering, computer organization, and assembly language 
+- i am currently learning software engineering, RISC-V assembly language, and algorithm analysis and design 
 - please reach me at sallen21@uccs.edu !
 - he/him 
 - ｡+ﾟ.。+。(´ω｀*)♪♪
